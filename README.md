@@ -1,4 +1,4 @@
-# The Iskian Empire (TIE) Mission
+# The Iskian Empire Mission
 
 by Sabus Narian » Wed Jan 23, 2019 8:20 am
 
